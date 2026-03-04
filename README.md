@@ -1,8 +1,10 @@
-![silies](https://komarev.com/ghpvc/?username=duowithme&color=c70a26)
+　　　　　　　　　　　　　　![silies](https://komarev.com/ghpvc/?username=duowithme&color=c70a26)
 
-![spepticle-unstable-smp](https://github.com/user-attachments/assets/f322525a-d46b-4be8-bed5-4f6e532e8038)
-i crie over this
+<img width="665" height="375" alt="Screenshot_2026-03-04_15 51 28-removebg-preview" src="https://github.com/user-attachments/assets/e712664c-051c-4d5e-93fb-c9a32dda2b94" /> art by @[olliesworm](https://x.com/olliesworm)
 
-thisll look good soon i promse you .. for nowww...
 
-[ata](https://thelifestealrepublic.atabook.org/)
+
+
+　　　　　　　　　　hi to the 3 **skipzy** fans out there
+
+　　　　　　　　　　　　　　　 [!ata](https://thelifestealrepublic.atabook.org/) + more soon
