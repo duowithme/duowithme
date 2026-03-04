@@ -1,5 +1,6 @@
-im redoing my git its ugly
+![spepticle-unstable-smp](https://github.com/user-attachments/assets/f322525a-d46b-4be8-bed5-4f6e532e8038)
+i crie over this
 
-i support dream and dteam (NOT FUCKING WILBUR I CANT BELEIVE I HAVE TO SAY THIS)
-and judelow ! woah! scary im "problematic"!! run away!!
-ok but srsly iweec if u still think Dream is a groomer // Jude meant any harm ok? thanks and avoid talking abt them around me
+thisll look good soon i promse you .. for nowww...
+
+[ata](https://thelifestealrepublic.atabook.org/)
