@@ -7,4 +7,4 @@
 
 　　　　　　　　　　hi to the 3 **skipzy** fans out there
 
-　　　　　　　　　　　　　　　 [!ata](https://thelifestealrepublic.atabook.org/) + more soon
+　　　　　　　　　　　　　　　 [!ata](https://thelifestealrepublic.atabook.org/) + [!guns](https://guns.lol/4hearted)
