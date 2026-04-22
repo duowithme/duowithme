@@ -1,10 +1,10 @@
-　　　　　　　　　　　　　　![silies](https://komarev.com/ghpvc/?username=duowithme&color=c70a26)
-
-<img width="665" height="375" alt="Screenshot_2026-03-04_15 51 28-removebg-preview" src="https://github.com/user-attachments/assets/e712664c-051c-4d5e-93fb-c9a32dda2b94" /> art by @[olliesworm](https://x.com/olliesworm)
-
-
+　![silies](https://komarev.com/ghpvc/?username=duowithme&color=c70a26)
+　　　　　　　　　　　　　　　　　　　　　　　　
+                    <img width="150" height="155" alt="SpepticleSticker" src="https://github.com/user-attachments/assets/7cf82034-f23f-4492-97e7-99ba2c0d8f8c" />
 
 
-　　　　　　　　　　hi to the 3 **skipzy** fans out there
 
-　　　　　　　　　　　　　　　 [!ata](https://thelifestealrepublic.atabook.org/) + [!guns](https://guns.lol/4hearted)
+
+" *I wanted to be a bird too.* "
+
+　　　  [!ata](https://thelifestealrepublic.atabook.org/) + [!guns](https://guns.lol/4hearted)
