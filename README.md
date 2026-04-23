@@ -10,4 +10,10 @@
  　　　　 $\color{yellow}{-------------------}$
               
 　　　　　  　[╱atabook](https://thelifestealrepublic.atabook.org/) 　　[.](https://www.youtube.com/@naparizel)　　[╱gunslol](https://guns.lol/4hearted)
+
+ 
+ 　　　 <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31toj3m5rauqrags6bdqpubi2elu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=edb431&bar_color_cover=false">
+  </a>
+</p>
 　
