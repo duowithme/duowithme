@@ -1,10 +1,13 @@
-　![silies](https://komarev.com/ghpvc/?username=duowithme&color=c70a26)
+　 　　　　　　　 ![m](https://komarev.com/ghpvc/?username=duowithme&color=yellow) . $\color{yellow}{✦}$
 　　　　　　　　　　　　　　　　　　　　　　　　
-                    <img width="150" height="155" alt="SpepticleSticker" src="https://github.com/user-attachments/assets/7cf82034-f23f-4492-97e7-99ba2c0d8f8c" />
+               　　　　　　　　　　　　　　　　　　　　     <img width="441" height="565" alt="Guetk6-XIAAk5xV-removebg-preview" src="https://github.com/user-attachments/assets/d797b1b7-aa75-437d-96a0-093120b54718" />
 
 
 
 
-" *I wanted to be a bird too.* "
-
-　　　  [!ata](https://thelifestealrepublic.atabook.org/) + [!guns](https://guns.lol/4hearted)
+ 　　　　 " i $\color{yellow}{AM}$ the bad guy that you think $\color{yellow}{i}$ am . "
+ 
+ 　　　　 $\color{yellow}{-------------------}$
+              
+　　　　　  　[╱atabook](https://thelifestealrepublic.atabook.org/) 　　[.](https://www.youtube.com/@naparizel)　　[╱gunslol](https://guns.lol/4hearted)
+　
