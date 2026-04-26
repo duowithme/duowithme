@@ -9,7 +9,7 @@
  
  　　　　 $\color{yellow}{-------------------}$
               
-　　　　　  　[╱atabook](https://thelifestealrepublic.atabook.org/) 　　[.](https://www.youtube.com/@naparizel)　　[╱gunslol](https://guns.lol/4hearted)
+　　　　　  　[╱atabook](https://conquer.atabook.org/) 　　[.](https://www.youtube.com/@naparizel)　　[╱gunslol](https://guns.lol/4hearted)
 
 　　　　　   　[︶ prn cc](https://pronouns.cc/@nnaparizel)      　
  
