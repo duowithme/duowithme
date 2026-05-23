@@ -1,4 +1,4 @@
-　 　　　　　　　　 ![m](https://komarev.com/ghpvc/?username=duowithme&color=yellow) . $\color{yellow}{✦}$
+　 　　　　　　　　 ![m](https://komarev.com/ghpvc/?username=duowithme&color=F76F7B) . $\color{F6FFD0}{✦}$
 
 　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7BE47&repeat=false&width=435&lines=thank+you+for+everything)](https://git.io/typing-svg)
 　　　　　　　　　　　　　　　　　　　　　　　　
