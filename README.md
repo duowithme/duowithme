@@ -15,7 +15,7 @@
 
 　　　　　　　　　　　　　　　　　 <img width="85" height="30" alt="6ac105153b17659" src="https://files.catbox.moe/zf9502.gif" />      
 
-　　　　　　　　　　　　　　[♡ straw](https://4hearted.straw.page)　　[guns](https://guns.lol/4hearted)　　[ata ♡](https://jumperwhom.atabook.org/)
+　　　　　　　　　　　　　　[♡ txto](https://txto.eu.org/hearted)　　[guns](https://guns.lol/4hearted)　　[ata ♡](https://jumperwhom.atabook.org/)
 
 　　　　　　　　　　　　　　　　　 <img width="90" height="20" alt="6ac105153b17659" src="https://files.catbox.moe/l6srf9.gif" />      
 　　　　　　　　　　　　　　　　　 <img width="90" height="20" alt="6ac105153b17659" src="https://files.catbox.moe/je5m9x.gif" />      
