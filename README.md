@@ -1,4 +1,4 @@
-THIS IS LOWKEY BREAKING FOR WHATEER REAOSN #github showing signs of rotting i guess
+rebrand soon
 
 
 　 　　　　　　　　　　　　　　 　![](https://komarev.com/ghpvc/?username=duowithme&label=bunnys&color=F76F7B) . $$\color{#F6FFD0}{♡}$$
@@ -17,7 +17,7 @@ THIS IS LOWKEY BREAKING FOR WHATEER REAOSN #github showing signs of rotting i gu
 
 　　　　　　　　　　　　　　　　　 <img width="85" height="30" alt="6ac105153b17659" src="https://files.catbox.moe/zf9502.gif" />      
 
-　　　　　　　　　　　　　　[♡ txto](https://txto.eu.org/hearted)　　[guns](https://guns.lol/4hearted)　　[ata ♡](https://jumperwhom.atabook.org/)
+　　　　　　　　　　　　　　　　　[guns](https://guns.lol/4hearted)　　[ata ♡](https://jumperwhom.atabook.org/)
 
 　　　　　　　　　　　　　　　　　 <img width="90" height="20" alt="6ac105153b17659" src="https://files.catbox.moe/l6srf9.gif" />      
 　　　　　　　　　　　　　　　　　 <img width="90" height="20" alt="6ac105153b17659" src="https://files.catbox.moe/je5m9x.gif" />      
