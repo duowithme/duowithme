@@ -18,3 +18,16 @@
 <p align="center">   ${\textsf{\color{#414047} . he}}$ ${\textsf{\color{#cfd1d0} xe}}$ ${\textsf{\color{#414047} any}}$
 <p align="center">   ${\textsf{\color{#cfd1d0} —}}$
 <p align="center"> ${\textsf{\color{#414047} 16}}$ ${\textsf{\color{#cfd1d0}  ,}}$ ${\textsf{\color{#414047} so/sx285}}$ ${\textsf{\color{#cfd1d0}  ,}}$ ${\textsf{\color{#414047} audhd}}$
+
+<details>
+ <summary> </summary>
+
+ mostly at docks *o*r mcyt area
+
+*c+h* is encouraged
+
+*whispering* is encouraged heavily , bmf !
+ 
+</details>
+
+　<p align="center"> [001](https://guns.lol/4hearted)  ${\textsf{\color{#cfd1d0} —}}$ [002](https://pronouns.cc/@dereduo)
