@@ -1,6 +1,6 @@
 <p align="center"
 
-　 　　　　　　　　　　　　 　![](https://komarev.com/ghpvc/?username=duowithme&label=dere&color=414047) . $$\color{#414047}{♡}$$
+　 　　　　　　　　　![](https://komarev.com/ghpvc/?username=duowithme&label=dere&color=414047) . $$\color{#414047}{♡}$$
 
 </p>
 
@@ -14,4 +14,4 @@
 　
 　
  　
-　　　　　　　　　　　　　　　　　d
+　　　　　　　　　　　　　　　<p align="center"> ${\textsf{\color{#414047} four}}$ ${\textsf{\color{#cfd1d0} ou}}$ ${\textsf{\color{#414047} nico}}$
