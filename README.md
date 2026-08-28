@@ -1,7 +1,7 @@
 rebrand soon
 
 
-　 　　　　　　　　　　　　　　 　![](https://komarev.com/ghpvc/?username=duowithme&label=dere&color=F76F7B) . $$\color{#414047}{♡}$$
+　 　　　　　　　　　　　　　　 　![](https://komarev.com/ghpvc/?username=duowithme&label=dere&color=414047) . $$\color{#414047}{♡}$$
 
 
 
