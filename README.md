@@ -30,4 +30,4 @@
  
 </details>
 
-　<p align="center"> [001](https://guns.lol/4hearted)  ${\textsf{\color{#cfd1d0} —}}$ [002](https://pronouns.cc/@dereduo)
+　<p align="center"> [guns](https://guns.lol/4hearted)  ${\textsf{\color{#cfd1d0} —}}$ [cc](https://pronouns.cc/@dereduo) [ata](https://dereduo.atabook.org/)
