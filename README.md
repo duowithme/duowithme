@@ -27,6 +27,8 @@
 *c+h* is encouraged
 
 *whispering* is encouraged heavily , bmf !
+
+feel free to add me on discord , @4hearted
  
 </details>
 
