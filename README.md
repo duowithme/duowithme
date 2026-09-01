@@ -20,7 +20,7 @@
 <p align="center"> ${\textsf{\color{#414047} 16}}$ ${\textsf{\color{#cfd1d0}  ,}}$ ${\textsf{\color{#414047} so/sx285}}$ ${\textsf{\color{#cfd1d0}  ,}}$ ${\textsf{\color{#414047} audhd}}$
 
 <details>
- <summary> </summary>
+ <summary> ${\textsf{\color{#cfd1d0} ♡　clckme}}$ </summary>
 
  mostly at docks *o*r mcyt area
 
@@ -32,4 +32,18 @@ feel free to add me on discord , @4hearted
  
 </details>
 
+
+
 　<p align="center"> [guns](https://guns.lol/4hearted)  ${\textsf{\color{#cfd1d0} —}}$ [cc](https://pronouns.cc/@dereduo)  ${\textsf{\color{#cfd1d0} —}}$ [ata](https://dereduo.atabook.org/)
+　
+
+　
+
+ 　
+<details> 
+ <summary> ${\textsf{\color{#414047} ♡　oomfs}}$ </summary>
+
+
+oomfs go here
+ 
+</details>
