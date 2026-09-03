@@ -50,3 +50,12 @@ feel free to add me on discord , @4hearted
 [amei](https://github.com/lostcxuse) ${\textsf{\color{#414047} —}}$ [mane](https://github.com/faemoosee) ${\textsf{\color{#414047} —}}$ [sora](https://github.com/princezammery)
  
 </details>
+
+
+
+<details> 
+ <summary> ${\textsf{\color{#414047} ☆　special}}$ </summary>
+
+[pts sword4000](https://github.com/pt-hall-of-media) ${\textsf{\color{#414047} —}}$ [pts cyan](https://github.com/pt-walk-of-fame)
+ 
+</details>
