@@ -20,16 +20,15 @@
 <p align="center"> ${\textsf{\color{#414047} 16}}$ ${\textsf{\color{#cfd1d0}  ,}}$ ${\textsf{\color{#414047} so/sx285}}$ ${\textsf{\color{#cfd1d0}  ,}}$ ${\textsf{\color{#414047} audhd}}$
 
 <details>
- <summary> ${\textsf{\color{#cfd1d0} ♡　clckme}}$ </summary>
+ <summary> ${\textsf{\color{#cfd1d0} ♡　qbm}}$ </summary>
 
- mostly at docks *o*r mcyt area
-
-*c+h* is encouraged
-
-*whispering* is encouraged heavily , bmf !
-
-feel free to add me on discord , @4hearted
- 
+[ajax](https://github.com/nightdayswish/)
+[osity](https://github.com/gereosityscrapes)
+[kuro](https://github.com/leafdere/)
+[kami](https://github.com/winterabyssal/)
+[summer](https://github.com/tricoIour/)
+[raja](https://github.com/wonderlandraja) 
+${\textsf{\color{#414047} ♡}}$
 </details>
 
 
