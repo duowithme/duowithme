@@ -42,9 +42,9 @@ ${\textsf{\color{#414047} ♡}}$
 <details> 
  <summary> ${\textsf{\color{#414047} ♡　oomfs}}$ </summary>
 
-[ivan](https://github.com/deadmenlay) ${\textsf{\color{#cfd1d0} ♡) }}$ ${\textsf{\color{#414047} —}}$ [avian](https://github.com/thecommonavis) ${\textsf{\color{#414047} ♡　)}}$
+[avian](https://github.com/thecommonavis) ${\textsf{\color{#414047} —}}$ [ajax](https://github.com/nightdayswish) ${\textsf{\color{#414047} )　}}$
 
-[ajax](https://github.com/nightdayswish) ${\textsf{\color{#414047} —}}$ [osity](https://github.com/gereosityscrapes) ${\textsf{\color{#414047} —}}$ [jay](https://github.com/deviousduoz)
+[osity](https://github.com/gereosityscrapes) ${\textsf{\color{#414047} —}}$ [jay](https://github.com/deviousduoz)
 
 [amei](https://github.com/lostcxuse) ${\textsf{\color{#414047} —}}$ [mane](https://github.com/faemoosee) ${\textsf{\color{#414047} —}}$ [sora](https://github.com/princezammery)
  
