@@ -46,7 +46,7 @@ ${\textsf{\color{#414047} ♡}}$
 
 [osity](https://github.com/gereosityscrapes) ${\textsf{\color{#414047} —}}$ [jay](https://github.com/deviousduoz)
 
-[amei](https://github.com/lostcxuse) ${\textsf{\color{#414047} —}}$ [mane](https://github.com/faemoosee) ${\textsf{\color{#414047} —}}$ [sora](https://github.com/princezammery)
+[amei](https://github.com/lostcxuse) ${\textsf{\color{#414047} —}}$ [mane](https://github.com/fizzfies) ${\textsf{\color{#414047} —}}$ [sora](https://github.com/princezammery)
  
 </details>
 
